@@ -18,3 +18,13 @@
 > When arguing with a fool, first make sure the other person isn’t doing the same thing.
 ― Unknown
 
+> You can't fix the mistakes you don't know you are making. ― Me
+
+
+> If life is a big game, it can be surmised that everything is some kind of entertainment. ― Ebzzry
+
+> The more one shows, the less one has. ― Ebzzry
+
+> A short poem for a short life: full of events; lacking in significance. (Commoner) - Me
+
+

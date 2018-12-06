@@ -27,4 +27,5 @@
 
 > A short poem for a short life: full of events; lacking in significance. (Commoner) - Me
 
+> You can't be promoted if you can't be replaced. ― Anonymous Prof
 

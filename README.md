@@ -29,3 +29,15 @@
 
 > You can't be promoted if you can't be replaced. ― Anonymous Prof
 
+
+> Luke McManus' Words of Wisdom
+>
+> "You can't connect the dots looking forward; you can only connect them looking backwards. So you have to trust that the dots will somehow connect in your future. You have to trust in something — your gut, destiny, life, karma, whatever. This approach has never let me down, and it has made all the difference in my life." ― Steve Jobs
+
+> "Here’s to the crazy ones — the misfits, the rebels, the troublemakers, the round pegs in the square holes. The ones who see things differently — they’re not fond of rules. You can quote them, disagree with them, glorify or vilify them, but the only thing you can’t do is ignore them because they change things. They push the human race forward, and while some may see them as the crazy ones, we see genius, because the ones who are crazy enough to think that they can change the world, are the ones who do." ― Steve Jobs
+
+> "If you want to go fast, go alone. If you want to go far, go with others." ― African Proverb
+
+> "Creativity is not a talent. It is a way of operating." ― John Cleese
+
+> "I shall not today attempt further to define the kinds of material I understand to be embraced within that shorthand description; and perhaps I could never succeed in intelligibly doing so. But I know it when I see it..." ― Potter Stewart
